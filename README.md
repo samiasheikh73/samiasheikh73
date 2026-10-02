@@ -33,7 +33,7 @@ To continuously learn, build meaningful projects, strengthen my technical and ma
 
 ### Connect With Me
 
-*  LinkedIn: [Your LinkedIn Profile](#)
+*  LinkedIn: [samiasheikh73](#)
 *  Email: samiasheikh73@gmail.com
 
  *Learning, creating, and growing one step at a time.*
